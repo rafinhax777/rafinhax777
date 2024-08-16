@@ -9,3 +9,6 @@
 <!---
 rafinhax777/rafinhax777 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes. 
+BOSTA 7777777777777777777 VOCÊ É UM CU
+NASCEU DE UM CU
+ASEITA QUE É VERDADI
